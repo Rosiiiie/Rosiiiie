@@ -1,5 +1,6 @@
 ## Hi there 👋
-ill eventually make this look pretty , trust /n
+ill eventually make this look pretty , trust 
+
 ![umu](https://github.com/user-attachments/assets/4eacb766-d3be-4f5e-bd11-7c5c3ade56d7)
 
 
