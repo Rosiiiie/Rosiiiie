@@ -1,6 +1,6 @@
 ## Hi there 👋
 ill eventually make this look pretty , trust
-https://raw.githubusercontent.com/Rosiiiie/Rosiiiie/refs/heads/main/umu.gif
+<<https://raw.githubusercontent.com/Rosiiiie/Rosiiiie/refs/heads/main/umu.gif>>
 
 <!--
 **Rosiiiie/Rosiiiie** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
