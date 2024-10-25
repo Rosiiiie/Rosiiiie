@@ -1,6 +1,7 @@
 ## Hi there 👋
 ![roas](https://github.com/user-attachments/assets/ec2de00d-9736-4557-900c-a94e0c36c5f2)
 yeah i know it still looks bad , i can fix her </3
+
 anywaaayys contact me @ shaaarq on discord for
 
 ![umu](https://github.com/user-attachments/assets/4eacb766-d3be-4f5e-bd11-7c5c3ade56d7)
