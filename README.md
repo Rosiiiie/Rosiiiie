@@ -5,8 +5,8 @@ trans rights are human rights
 ![umu](https://github.com/Rosiiiie/Rosiiiie/blob/main/gifs/umu.gif?raw=true)
 
 ![rappa](https://github.com/Rosiiiie/Rosiiiie/blob/main/gifs/rappa.gif?raw=true)
-
-
+![trans](https://github.com/Rosiiiie/Rosiiiie/blob/main/gifs/human.gif?raw=true)
+![aqua teen](https://github.com/Rosiiiie/Rosiiiie/blob/main/gifs/athf.gif?raw=true)
 
 <!--
 **Rosiiiie/Rosiiiie** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
