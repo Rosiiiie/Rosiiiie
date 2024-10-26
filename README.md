@@ -3,6 +3,8 @@
 
 trans rights are human rights
 ![umu](https://github.com/Rosiiiie/Rosiiiie/blob/main/gifs/umu.gif?raw=true)
+![rappa](https://github.com/Rosiiiie/Rosiiiie/blob/main/gifs/rappa.gif?raw=true)
+
 
 
 <!--
