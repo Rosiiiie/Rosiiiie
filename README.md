@@ -1,5 +1,4 @@
 ## ![oouWiggly](https://github.com/Rosiiiie/Rosiiiie/blob/main/gifs/wwwebx.gif?raw=true)
-![oouWiggly](https://github.com/Rosiiiie/Rosiiiie/blob/main/gifs/rosie_white.gif?raw=true)
 
 ![umu](https://github.com/Rosiiiie/Rosiiiie/blob/main/gifs/umu.gif?raw=true)
 
