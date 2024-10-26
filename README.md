@@ -1,5 +1,9 @@
 ## ![oouWiggly](https://github.com/Rosiiiie/Rosiiiie/blob/main/gifs/wwwebx.gif?raw=true)
 
+matrix coming soon , contact me on discord of the time being .
+
+@shaaarq
+
 ![umu](https://github.com/Rosiiiie/Rosiiiie/blob/main/gifs/umu.gif?raw=true)
 
 ![rappa](https://github.com/Rosiiiie/Rosiiiie/blob/main/gifs/rappa.gif?raw=true)
