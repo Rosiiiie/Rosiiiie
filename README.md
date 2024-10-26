@@ -1,5 +1,5 @@
 ## welcome to my wwweb world 
-
+![oouWiggly](https://github.com/Rosiiiie/Rosiiiie/blob/main/rosie_white.gif?raw=true)
 ![umu](https://github.com/user-attachments/assets/4eacb766-d3be-4f5e-bd11-7c5c3ade56d7)
 
 
