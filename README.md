@@ -1,8 +1,8 @@
 ## welcome to my wwweb world 
-![oouWiggly](https://github.com/Rosiiiie/Rosiiiie/blob/main/rosie_white.gif?raw=true)
+![oouWiggly](https://github.com/Rosiiiie/Rosiiiie/blob/main/gifs/rosie_white.gif?raw=true)
 
 trans rights are human rights
-![umu](https://github.com/user-attachments/assets/4eacb766-d3be-4f5e-bd11-7c5c3ade56d7)
+![umu](https://github.com/Rosiiiie/Rosiiiie/blob/main/gifs/umu.gif?raw=true)
 
 
 <!--
