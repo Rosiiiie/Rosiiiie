@@ -1,4 +1,4 @@
-## welcome to my wwweb world 
+## ![oouWiggly](https://github.com/Rosiiiie/Rosiiiie/blob/main/gifs/wwweb.gif?raw=true)
 ![oouWiggly](https://github.com/Rosiiiie/Rosiiiie/blob/main/gifs/rosie_white.gif?raw=true)
 
 trans rights are human rights
