@@ -1,6 +1,6 @@
 ## ![oouWiggly](https://github.com/Rosiiiie/Rosiiiie/blob/main/gifs/wwwebx.gif?raw=true)
 
-matrix coming soon , contact me on discord of the time being .
+matrix coming soon , contact me on discord for the time being .
 
 @shaaarq
 
