@@ -2,10 +2,7 @@
 
 old web scratches my simple little brain :)
 
-contact me ! 
-Matrix - @berrygrave:arcticfoxes.net
-
-Discord - shaaarq
+contact me !\nMatrix - @berrygrave:arcticfoxes.net \nDiscord - shaaarq
 
 ![umu](https://github.com/Rosiiiie/Rosiiiie/blob/main/gifs/umu.gif?raw=true)
 
