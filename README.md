@@ -2,9 +2,7 @@
 
 old web scratches my simple little brain :)
 
-matrix coming soon , contact me on discord for the time being .
-
-@shaaarq
+contact me ! @berrygrave:arcticfoxes.net
 
 ![umu](https://github.com/Rosiiiie/Rosiiiie/blob/main/gifs/umu.gif?raw=true)
 
