@@ -14,6 +14,9 @@ Discord - shaaarq
 ![trans](https://github.com/Rosiiiie/Rosiiiie/blob/main/gifs/human.gif?raw=true)
 ![aqua teen](https://github.com/Rosiiiie/Rosiiiie/blob/main/gifs/athf.gif?raw=true)
 
+![burriot](https://github.com/user-attachments/assets/e2b52d09-7818-4332-a204-af602076d9ef)
+
+
 <!--
 **Rosiiiie/Rosiiiie** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
