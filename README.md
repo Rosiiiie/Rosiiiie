@@ -9,6 +9,7 @@ Discord - shaaarq
 [![getmatrix88x31](https://github.com/user-attachments/assets/1f3e648d-f9f8-4fd1-97ec-71806d176687)](https://matrix.org)
 ![crumpet88x31](https://github.com/user-attachments/assets/88ed3651-1b29-4290-b189-0e4a3e4de543)
 ![bob](https://github.com/user-attachments/assets/a434ce3d-1a1d-4d73-9f9c-768cf95ff25b)
+![miku](https://github.com/user-attachments/assets/58473335-31fd-4922-b076-e885f60ed0da)
 
 ![umu](https://github.com/Rosiiiie/Rosiiiie/blob/main/gifs/umu.gif?raw=true)
 
