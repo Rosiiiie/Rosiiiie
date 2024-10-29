@@ -6,6 +6,8 @@ contact me ! <br />
 Matrix - @berrygrave:arcticfoxes.net <br />
 Discord - shaaarq
 
+[![getmatrix88x31](https://github.com/user-attachments/assets/1f3e648d-f9f8-4fd1-97ec-71806d176687)](https://matrix.org)
+
 ![umu](https://github.com/Rosiiiie/Rosiiiie/blob/main/gifs/umu.gif?raw=true)
 
 ![rappa](https://github.com/Rosiiiie/Rosiiiie/blob/main/gifs/rappa.gif?raw=true)
