@@ -10,6 +10,7 @@ Discord - shaaarq
 ![crumpet88x31](https://github.com/user-attachments/assets/88ed3651-1b29-4290-b189-0e4a3e4de543)
 ![bob](https://github.com/user-attachments/assets/a434ce3d-1a1d-4d73-9f9c-768cf95ff25b)
 ![miku](https://github.com/user-attachments/assets/58473335-31fd-4922-b076-e885f60ed0da)
+![webpassion](https://github.com/user-attachments/assets/1edae143-de91-4582-b317-4bcad2fa2769)
 
 ![umu](https://github.com/Rosiiiie/Rosiiiie/blob/main/gifs/umu.gif?raw=true)
 
