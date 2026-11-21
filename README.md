@@ -3,8 +3,7 @@
 old web scratches my simple little brain :)
 
 contact me ! <br />
-Matrix - @berrygrave:arcticfoxes.net <br />
-Discord - shaaarq
+Discord - diviine.machinery
 
 [![getmatrix88x31](https://github.com/user-attachments/assets/1f3e648d-f9f8-4fd1-97ec-71806d176687)](https://matrix.org)
 ![crumpet88x31](https://github.com/user-attachments/assets/88ed3651-1b29-4290-b189-0e4a3e4de543)
